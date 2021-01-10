@@ -1,5 +1,11 @@
 # Twitter Trends
 
+## レッドブル
+
+https://twitter.com/mainichijpnews/status/1348163112839516160
+
+レッドブル社が翼を授ける清涼飲料水を値下げを発表しました。天界の労働省は「翼を授かる敷居が下がることによって、近年、不足している天使のなり手が増加することを期待する」と所感を発表しました。
+
 ## 永久凍結
 
 https://twitter.com/asozan_daifunka/status/1347704819922857985
